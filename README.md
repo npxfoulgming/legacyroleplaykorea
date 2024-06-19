@@ -1,2 +1,2 @@
-# legacyroleplaykorea
-This website is only for roleplay and created by npxfoulgaming
+# Legacy-RP-Korea
+This Sites Is for Roleplaying, feel free to visit.
